@@ -1,0 +1,1 @@
+# NewMindAI_Patika_FinalProject
